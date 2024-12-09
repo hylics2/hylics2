@@ -1,4 +1,4 @@
-<img src="https://media.discordapp.net/attachments/1267171422275502165/1289641234880659550/235aabb0.png?ex=67587b7e&is=675729fe&hm=7eba25eaf3e3b18460d19e142d04c9e12abff64729d679529e7acbb71a95e948&"><img src="https://media.discordapp.net/attachments/1267171422275502165/1289641234880659550/235aabb0.png?ex=67587b7e&is=675729fe&hm=7eba25eaf3e3b18460d19e142d04c9e12abff64729d679529e7acbb71a95e948&">
+
 
 
 
