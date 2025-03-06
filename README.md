@@ -4,7 +4,7 @@
 
 
 
-                                    louis or loe/leo      he she      4teen 
+                                    louis or loe/leo      he him      4teen 
                                          
 
 
